@@ -1,4 +1,4 @@
-# 🖥️ Eythor do Nascimento Fernandes - Portfólio
+# 🖥️ Eythor do Nascimento - Portfólio
 
 🚀 Meu espaço na web: [EythordoNascimento.github.io](https://EythordoNascimento.github.io)  
 
